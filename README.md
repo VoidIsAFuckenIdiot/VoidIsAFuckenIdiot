@@ -1,0 +1,4 @@
+- Hi, I'm Void
+- I’m interested in 3D Animation and Modelling
+- I’m currently learning 3D Rigging and High Polygon modelling
+- To reach me, use an email like a normal person
